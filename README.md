@@ -1,2 +1,2 @@
-# S8
-S7 UPDATED CONTACT
+# S7
+According to template 
